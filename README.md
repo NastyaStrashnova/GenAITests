@@ -1,0 +1,1 @@
+studying generative ai
